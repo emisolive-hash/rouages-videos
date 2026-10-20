@@ -1,3 +1,3 @@
 # rouages-videos
 
-Vidéos de la chaîne ROUAGES, hébergées ici pour la publication via Metricool.
+Vidéos publiées de la chaîne ROUAGES (Instagram / TikTok @rouages.off).
